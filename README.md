@@ -1,0 +1,2 @@
+# T-P-KH-CH-H-NG---CH-PH-C-H-I
+KHÁCH HÀNG HP2
